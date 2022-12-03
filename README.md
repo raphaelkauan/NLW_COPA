@@ -1,1 +1,1 @@
-# NLW_COPA
+# NLW_COPA 🇧🇷
